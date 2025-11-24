@@ -42,4 +42,4 @@ I thrive in team environments that value open communication and partnership. My 
 
 ---
 
-📫 **Let's connect:** [Your LinkedIn Profile]
+📫 **Let's connect:** https://www.linkedin.com/in/adrian-jakub-piotrowski-b74261255/
